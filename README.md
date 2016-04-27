@@ -1,1 +1,0 @@
-# drupla8_training
